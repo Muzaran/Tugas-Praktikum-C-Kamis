@@ -1,3 +1,4 @@
 # Tugas-Praktikum-C-Kamis
 
-untuk tugas yang belum menyusul ya pak
+Mohon diperiksa Semua Tugas-tugasnya pak..
+Terimakasih.
